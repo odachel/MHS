@@ -1,0 +1,2 @@
+# MHS
+merrill high school
